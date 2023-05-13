@@ -1,6 +1,8 @@
-# ENCYCLOPEDIA OF TAEKWON-DO
+---
+description: The legacy of General Choi Hong Hi
+---
 
-{% file src=".gitbook/assets/Choi,Hong Hi - Encyclopedia of Taekwon-do. Vol 01.pdf" %}
+# ENCYCLOPEDIA OF TAEKWON-DO
 
 {% file src=".gitbook/assets/Choi,Hong Hi - Encyclopedia of Taekwon-do. Vol 01.pdf" %}
 
@@ -25,8 +27,6 @@
 {% file src=".gitbook/assets/Choi,Hong Hi - Encyclopedia of Taekwon-do Vol 11 - libgen.li.pdf" %}
 
 {% file src=".gitbook/assets/Choi,Hong Hi - Encyclopedia of Taekwon-do Vol 12 - libgen.li.pdf" %}
-
-{% file src=".gitbook/assets/Choi,Hong Hi - Encyclopedia of Taekwon-do Vol 13 - libgen.li.pdf" %}
 
 {% file src=".gitbook/assets/Choi,Hong Hi - Encyclopedia of Taekwon-do Vol 13 - libgen.li.pdf" %}
 
