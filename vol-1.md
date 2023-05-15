@@ -42,3 +42,31 @@ My sincere appreciation also goes to Mr. Han Chang Sam and my beloved student Sa
 
 Image: The author and the author's son Choi Joong Hwa and Master Park Jung Taek with his wife Glenda Park conduct a last minute review in the preparation of this encyclopedia
 
+
+
+## TAEKWON-DO AND IMITATORS
+
+Today, the enormous popularity of Taekwon-Do has created imitators, and whilst at times imitation is the sincerest form of flattery, in the case of Taekwon-Do, this is definitely not true. To imitate without full knowledge of the original is dangerous. It is somewhat akin to allowing a child to play with a toy gun, then giving him a real gun and expecting the child to understand the difference without giving him the knowledge of the function and effect of a real gun.
+
+In most instances of imitation, the imitator simply mimics the original without any change. Usually, this does not cause any harm provided the one who imitates does not change the original (in this case Taekwon-Do) by unproven additional techniques, interpretations. philosophy, terminology or systems and methods.
+
+It is when unauthorized changes to the original art of Taekwon-Do take place that these imitators create a highly dangerous and eroding influence upon the concept of Taekwon-Do.
+
+Dangerous, because it gives to the students of the imitators a sense of mastery of techniques which are completely unfounded in the knowledge of the true martial art of Taekwon-Do.
+
+Dangerous, because a student may become a teacher and all unknowingly imparts his false techniques to others, thus compounding the error of false knowledge. This will lead to an erosion of confidence, by serious students, in Taekwon-Do as a proven martial art.
+
+Confusion has recently arisen by the use of the terminology "TAEKWON-DO, THE KOREAN ART OF SELF-DEFENSE," I emphasize the word Korean.
+
+Today, in the South Korea, it is becoming the practice to indiscriminately apply the word Taekwon-Do to a bastardized imitation of the real original Korean martial art.
+
+General Choi Hong Hi has been creating, developing the art of Taekwon-Do since early 1946, in what is now known as the Republic of Korea. It is true that General Choi was born in Korea and at the time of developing and introducing Taekwon-Do he resided there. It is also true that the basis of Taekwon-Do goes back to the ancient past of Korea, but to call Taekwon-Do purely Korean is somewhat like one country claiming to have introduced fire.
+
+The true Taekwon-Do of General Choi knows no boundaries of countries; it is a universal art of self-defense. It is also an art for which the author of this encyclopedia has devoted his life, not only to retain the purity of the original Taekwon-Do introduced by him in 1955, but to constantly search for ways of improving the original techniques. Only after exhaustive research and proof of improvement and effectiveness is a change to the original approved and incorporated within the overall art of Taekwon-Do.
+
+These volumes are proof of General Choi's tenacity of dedication to keeping the original Taekwon-Do free from unproved imitations, and with the co-operation of all true Taekwon-Do students, no matter what grade, weed out those who seek to destroy his teachings.
+
+![](<.gitbook/assets/image (1).png>)
+
+
+
