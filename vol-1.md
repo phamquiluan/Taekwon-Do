@@ -107,3 +107,47 @@ Those who devote themselves to their fellows and live according to the dictates 
 **CONCLUSION**
 
 A beginning constitutes a significant part of the whole endeavor. Therefore, students of Taekwon-Do should not fail to take action whenever to do so might benefit the society. If he behaves thus, he himself will benefit most.
+
+
+
+## THE TENETS OF TAEKWON-DO
+
+_**(Taekwon-Do Jungshin)**_
+
+TAEKWON-DO AIMS TO ACHIEVE
+
+**Courtesy** (Ye Ui)
+
+**Integrity** (Yon Chi)
+
+**Perseverance** (In Nae)
+
+**Self-Control** (Guk Gi)
+
+**Indomitable Spirit** (Baekjul Boo/goof)
+
+![](<.gitbook/assets/image (2).png>)
+
+
+
+## EXPLANATION OF TENETS
+
+Needless 10 say, the success or failure of Taekwon-Do training depends largely on how one observes and implements the tenets of Taekwon-Do, which should serve as a guide for all serious students of the art. COURTESY (Ye Ui) Taekwon-Do students should attempt to practise the following elements of courtesy to build up their noble character and to conduct the training in an orderly manner as well.
+
+1. To promote the spirit of mutual concessions
+2. To be ashamed of one's vices, contemplating those of others
+3. To be polite to one another
+4. To encourage the sense of justice and humanity
+5. To distinguish instructor from student. senior from junior, and elder from younger
+6. To behave oneself according to etiquette
+7. To respect others' possesions
+8. To handle matters with fairness and sincerity
+9. To refrain from giving or accepting any gift when in doubt
+
+**INTEGRITY** (Yom Chi) In Taekwon-Do, the word integrity assumes a looser definition than the one usually presented in Webster's dictionary. One must be able to define right and wrong and have the conscience. if wrong, to reel guilt. Listed are some examples, where integrity is lacking:
+
+1. The instructor who misrepresents himself and his art by presenting improper techniques to his students because of a lack of knowledge or apathy.
+2. The student who misrepresents himself by "fixing" breaking materials before demonstrations.
+
+
+
