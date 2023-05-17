@@ -70,3 +70,40 @@ These volumes are proof of General Choi's tenacity of dedication to keeping the 
 
 
 
+## CHARTER OF TAEKWON-DO
+
+_**(Taekwon-Do Hun Jang)**_
+
+**PREAMBLE**
+
+Since Taekwon-Do is an art of self-defence which aims at a noble moral rearmament, high degree of intellectual achievement, graceful techniques. formidable power and beauty of physical form, it can be considered as a part of one's daily life, just as are breathing and thinking.
+
+As the founder of Taekwon-Do. I would like to define its philosophy, principles, and purposes so that these might be applied to bring about the flowering of morality, beauty, and power in harmony with the immortal spirit.
+
+**PART 1.**
+
+Through scientific practice of Taekwon-Do one can significantly improve his health and nourish his intellect. One can be in a position to aid others in the cause of justice, thereby promoting social ethics and morals, thus helping to ' bring about a happier and more peaceful society.
+
+**PART 2.**
+
+In order to come to terms with life, in spite of its detestable aspects, and with the idea of death. one ought to continue studying the art of Taekwon-Do to learn techniques of power and grace, and to enlarge his spiritual realm. Thus the motivation to study shall be an inheritance of limitless value to succeeding generations.
+
+**PART 3.**
+
+Human beings come into the world with simple needs and desires. They need not become avaricious but ought to remain always humble and merciful, never compromise their principles, nor be swayed by selfish motives, to insure freedom and independence of Taekwon-Do so that it will be passed on in its pure form.
+
+**PART 4.**
+
+Since all students of the art are subject to the same rules of conduct and judged according to the same criteria regardless of their stations in life, their origins, and their religious convictions, they demonstrate to the world the essential equality and brotherhood of man.
+
+**PART 5.**
+
+Modern society is characterised by selfish preoccupation with material excess and unnecessary dependence upon machines. Moral society is characterised by self discipline, sacrifice, and devotion. Dedication to the art can promote change toward a moral society.
+
+**PART 6.**
+
+Those who devote themselves to their fellows and live according to the dictates of their consciences are always helpful toward their juniors and show respect toward their instructors and their seniors.
+
+**CONCLUSION**
+
+A beginning constitutes a significant part of the whole endeavor. Therefore, students of Taekwon-Do should not fail to take action whenever to do so might benefit the society. If he behaves thus, he himself will benefit most.
