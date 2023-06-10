@@ -287,29 +287,29 @@ It is said this method was eventually combined with Shih Pa Lo-han to form the f
 
 There is little historical data to substantiate this story. Careful scrutiny of the evidence reveals that Daruma arrived in China during the Liang Dynasty of the sixth century. He initially attempted to teach Buddhism to King Moo Je at Kwang Joo but was refused admission to the palace grounds. The missionary then went to small country in the north of China called Ui where he was invited to teach King Myong Je. For reasons that are unknown, Daruma refused the offer and retired to the Shaoling Temple where he remained in meditation and devotion until his death nine years later.
 
-During the period between 1st century B.C. and 7th Century A.O .. the Korean peninsula was divided into three Kingdoms; Silla, Koguryo and Baek Je. Silla, the smallest of these kingdoms was constantly under invasion and harassmen1 by its two more powerful northern and western neighbours. During the reign of Chin Heung, Twenty-fourth King of Silla. the young aristocrats and warrior class formed an elite officers corps called Hwa Rangdo.
+During the period between 1st century B.C. and 7th Century A.O .. the Korean peninsula was divided into three Kingdoms; Silla, Koguryo and Baek Je. Silla, the smallest of these kingdoms was constantly under invasion and harassmen1 by its two more powerful northern and western neighbours. During the reign of Chin Heung, Twenty-fourth King of Silla, the young aristocrats and warrior class formed an elite officers corps called Hwa Rangdo.
 
-This warrior corps-in addition to the ordinary training in spear. bow. sword and hook- also trained themselves by practicing mental and physical discipline. and various forms of hand and foot lighting. To harden their bodies. they climbed rugged mountains, swarm the turbulent rivers in the coldest months. and drove themselves unmercifully to prepare for the 1ask of defending their homeland.
+This warrior corps - in addition to the ordinary training in spear, bow, sword and hook - also trained themselves by practicing mental and physical discipline, and various forms of hand and foot fighting. To harden their bodies, they climbed rugged mountains, swam the turbulent rivers in the coldest months, and drove themselves unmercifully to prepare for the task of defending their homeland.
 
 To guide themselves and give purpose to their knighthood, they incorporated a five-point code of conduct set forth by their country's greatest Buddhist monk and scholar Won Kang.
 
-1. Be loyal to'y\<lur king.
+1. Be loyal to your king.
 2. Be obedient to your parents.
 3. Be honourable to your friends.
 4. Never retreat in battle.
-5. Make a just ki ll.
+5. Make a just kill.
 
 The Hwa Rangdo became known in the peninsula for their courage and skill in battle, gaining respect from even their bitterest foes.
 
-The strength they derived from their respect to their code enabled them to attain feats of valour that became legendary. Many of these brave young warriors died on fields of battle in the threshold of their youth-as young as fourteen or fifteen years of age.
+The strength they derived from their respect to their code enabled them to attain feats of valour that became legendary. Many of these brave young warriors died on fields of battle in the threshold of their youth - as young as fourteen or fifteen years of age.
 
 ![](<.gitbook/assets/image (4).png>)
 
-The statue of Kumkang-Yuksa.afamous warrior in Sukulam. a stone cave built in the age of the Silla Dynasty.
+The statue of Kumkang-Yuksa, a famous warrior in Sukulam, a stone cave built in the age of the Silla Dynasty.
 
 Notice the similarities in form between the Kumkang-Yuksa and present day Taekwon-Do.
 
-The appearance of clenched fist, a strong knife-hand. and muscled legs which may have been result of heavy training.
+The appearance of clenched fist, a strong knife-hand, and muscled legs which may have been result of heavy training.
 
 There is much historical evidence to document the existence of a form of hand and foot fighting during this period in both Silla and Koguryo. Some of the postures resemble Taek Kyon or Japanese Jujitsu techniques.
 
@@ -317,21 +317,21 @@ It appears that the warriors of Hwa Rangdo added a new dimension to this primiti
 
 During the period of Hwa Rangdo, the original primitive method of hand fighting called Soo Bak-Gi was popular among the common people in the Koguryo Dynasty. The people had a high regard for Soo Bak-Gi. During the Dan-0 festivals (on the 5th of May of the lunar calendar) and mid-Autumn festivals (August 15th of the lunar calendar) competitions of Soo Bak-Gi were held along with games of Korean wrestling, tug of war, hopping contests and Jeki-Chagi.
 
-<figure><img src=".gitbook/assets/image (9).png" alt=""><figcaption><p>TJ.m mum) painting al Kak-je T(lmh, paintal in &#x26;he age orSan-Sang, the teot.h king of Koguryo, shows sparring orSoo Bak•Gi. Once again, notice the similari1ics of thcso post.urcs and Tuck-won-Do flying combatants.</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (9).png" alt=""><figcaption><p>The mural painting at the Kak-je Tomb, painted in the age of San-Sang, the tenth king of Koguryo, shows sparring of Soo Bak-Gi. Once again, notice the similarities of these postures and Taekwon-Do flying combatants.</p></figcaption></figure>
 
-The famous Korean historian. Dr. Danjae Shin Chae Ho, in his writings of ancient Chosun, describes the contests of skill and courage under grueling conditions; "dancing with swords and certain water sports were held on the frozen river to test a contestant's courage and perseverance. Archery and Taek Kyon contests were held to test skill and power.
+The famous Korean historian, Dr. Danjae Shin Chae Ho, in his writings of ancient Chosun, describes the contests of skill and courage under grueling conditions; "dancing with swords and certain water sports were held on the frozen river to test a contestant's courage and perseverance. Archery and Taek Kyon contests were held to test skill and power.
 
-The winner of the hunt was given the title of Son-Bi. All the above were judged to be necessary prerequisites of the warriors, and the winners were held in esteem by all'.' Dr.-Danjae states further, that the art of Soo Bak-Gi was eventually introduced to China as Kwon Bup and as a form of Jujitsu to Japan.
+The winner of the hunt was given the title of Son-Bi. All the above were judged to be necessary prerequisites of the warriors, and the winners were held in esteem by all". Dr.Danjae states further, that the art of Soo Bak-Gi was eventually introduced to China as Kwon Bup and as a form of Jujitsu to Japan.
 
 While pursuing historical documents relating to the martial arts in Korea, it was interesting to discover that the third king of the Yi Dynasty (1401 -1408) actively recruited experts in Taek Kyon, Sirum (Korean Wrestling), stone throwing, archery, and Soo Bak-Gi to help in organising a strong army.
 
 Much historical documentation seems to indicate that some of these forms of open hand fighting may have been eventually exported to Japan and formed the basis for Japanese Jujitsu and Karate.
 
-The Korean Hwa Rangdo may have been the forerunners of the famed Japanese samurai. In his book "This is Karate," Matutatsu Oyama, a well known authority of Karate in Japan, mentions that the etymology of Kara may have been derived from the country of Kaya at the southern tip of the Korean peninsula.
+The Korean Hwa Rangdo may have been the forerunners of the famed Japanese samurai. In his book "This is Karate," Matutatsu Oyama, a well-known authority of Karate in Japan, mentions that the etymology of Kara may have been derived from the country of Kaya at the southern tip of the Korean peninsula.
 
 
 
-_The mural painting at Kangso Tomb. 7th century. shows the advanced skill in art and the mysterious usage of everlasting colors, the technique of which remains unexplained._
+_The mural painting at Kangso Tomb, 7th century, shows the advanced skill in art and the mysterious usage of everlasting colors, the technique of which remains unexplained._
 
 <figure><img src=".gitbook/assets/image (2).png" alt=""><figcaption><p>Dark Warrior</p></figcaption></figure>
 
