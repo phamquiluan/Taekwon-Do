@@ -144,10 +144,19 @@ Needless 10 say, the success or failure of Taekwon-Do training depends largely o
 8. To handle matters with fairness and sincerity
 9. To refrain from giving or accepting any gift when in doubt
 
-**INTEGRITY** (Yom Chi) In Taekwon-Do, the word integrity assumes a looser definition than the one usually presented in Webster's dictionary. One must be able to define right and wrong and have the conscience. if wrong, to reel guilt. Listed are some examples, where integrity is lacking:
+**INTEGRITY** (Yom Chi)
+
+In Taekwon-Do, the word integrity assumes a looser definition than the one usually presented in Webster's dictionary. One must be able to define right and wrong and have the conscience, if wrong, to feel guilt. Listed are some examples, where integrity is lacking:
 
 1. The instructor who misrepresents himself and his art by presenting improper techniques to his students because of a lack of knowledge or apathy.
 2. The student who misrepresents himself by "fixing" breaking materials before demonstrations.
+3. The instructor who camouflages bad techniques with luxurious training halls and false flattery to his students.
+4. The student who requests rank from an instructor, or attempts to purchase it.
+5. The student who gains rank for ego purposes or the feeling of power.
+6. The instructor who teaches and promotes his art for materialistic gains.
+7. The student whose actions do not live up to his words.
+8. The student who feels ashamed to seek opinions from his juniors.
 
+**PERSEVERANCE** (In Nae)
 
-
+There is an old Oriental saying, "Patience leads to virtue or merit", "One can make a peaceful home by being patient for 100 times." Certainly, happiness and prosperity are most likely brought to the patient person. To achieve something, whether it is a higher degree or the perfection of a technique, one must set his goal. then constantly persevere. Robert Bruce learned his lesson of perseverance from the persistent efforts of a lowly spider. It was this perseverance and tenacity that finally enabled him to free Scotland in the fourteenth century. One of the most important secrets in becoming a leader of Taekwon-Do is to overcome every difficulty by perseverance. Confucius said; "one who is impatient in trivial matters can seldom achieve success in matters of great importance."
