@@ -38,7 +38,7 @@ I give special thanks to all instructors and black belt holders of many countrie
 
 My sincere appreciation also goes to Mr. Han Chang Sam and my beloved student Sabree Salleh who willingly gave up much of their valuable time for photographing required for this edition.
 
-<img src=".gitbook/assets/image.png" alt="" data-size="original">
+<img src=".gitbook/assets/image (1).png" alt="" data-size="original">
 
 Image: The author and the author's son Choi Joong Hwa and Master Park Jung Taek with his wife Glenda Park conduct a last minute review in the preparation of this encyclopedia
 
@@ -66,7 +66,7 @@ The true Taekwon-Do of General Choi knows no boundaries of countries; it is a un
 
 These volumes are proof of General Choi's tenacity of dedication to keeping the original Taekwon-Do free from unproved imitations, and with the co-operation of all true Taekwon-Do students, no matter what grade, weed out those who seek to destroy his teachings.
 
-![](<.gitbook/assets/image (1).png>)
+![](<.gitbook/assets/image (1) (1).png>)
 
 
 
@@ -126,7 +126,7 @@ TAEKWON-DO AIMS TO ACHIEVE
 
 **Indomitable Spirit** (Baekjul Boo/goof)
 
-![](<.gitbook/assets/image (2).png>)
+![](<.gitbook/assets/image (2) (1).png>)
 
 
 
@@ -159,4 +159,34 @@ In Taekwon-Do, the word integrity assumes a looser definition than the one usual
 
 **PERSEVERANCE** (In Nae)
 
-There is an old Oriental saying, "Patience leads to virtue or merit", "One can make a peaceful home by being patient for 100 times." Certainly, happiness and prosperity are most likely brought to the patient person. To achieve something, whether it is a higher degree or the perfection of a technique, one must set his goal. then constantly persevere. Robert Bruce learned his lesson of perseverance from the persistent efforts of a lowly spider. It was this perseverance and tenacity that finally enabled him to free Scotland in the fourteenth century. One of the most important secrets in becoming a leader of Taekwon-Do is to overcome every difficulty by perseverance. Confucius said; "one who is impatient in trivial matters can seldom achieve success in matters of great importance."
+There is an old Oriental saying, "Patience leads to virtue or merit", "One can make a peaceful home by being patient for 100 times." Certainly, happiness and prosperity are most likely brought to the patient person. To achieve something, whether it is a higher degree or the perfection of a technique, one must set his goal. then constantly persevere. Robert Bruce learned his lesson of perseverance from the persistent efforts of a lowly spider. It was this perseverance and tenacity that finally enabled him to free Scotland in the fourteenth century. One of the most important secrets in becoming a leader of Taekwon-Do is to overcome every difficulty by perseverance.
+
+Confucius said; "one who is impatient in trivial matters can seldom achieve success in matters of great importance."
+
+**SELF-CONTROL** (Guk Gi)
+
+This tenet is extremely important inside and outside the do jang, whether conducting oneself in free sparring or in one's personal affairs. A loss of self-control in free sparring can prove disastrous to both student and opponent. An inability to live and work within one's capability or sphere is also a lack of self-control.
+
+According to Lao-Tzu "the term of stronger is the person who wins over oneself rather than someone else."
+
+**INDOMITABLE SPIRIT** (Baekjul Boolgool)
+
+"Here lie 300, who did their duty," a simple epitaph for one of the greatest acts of courage known to mankind.
+
+Although facing the superior forces of Xerxes. Leonidas and his 300 Spartans at Thermopylae showed the world the meaning of indomitable spirit. It is shown when a courageous person and his principles are pitted against overwhelming odds.
+
+A serious student of Taekwon-Do will at all times be modest and honest. If confronted with injustice, he will deal with the belligerent without any fear or hesitation at all, with indomitable spirit, regardless of whosoever and however many the number may be.
+
+Confucius declared; "it is an act of cowardice to fail to speak out against injustice." As history has proven, those who have pursued their dreams earnestly and strenuously with indomitable spirit have never failed to achieve their goals.
+
+<figure><img src=".gitbook/assets/image.png" alt="" width="135"><figcaption><p>"Pursue one's own goal"</p></figcaption></figure>
+
+##
+
+## SONG of TAEKWON-DO
+
+Music by Kim Yoon Yung
+
+Words by Choi Hong Hi
+
+![](<.gitbook/assets/image (3).png>)![](<.gitbook/assets/image (2).png>)
