@@ -1,4 +1,4 @@
-# VOL 1
+# VOL 1 - Part 1
 
 ## PREFACE (Morimal)
 
@@ -38,7 +38,7 @@ I give special thanks to all instructors and black belt holders of many countrie
 
 My sincere appreciation also goes to Mr. Han Chang Sam and my beloved student Sabree Salleh who willingly gave up much of their valuable time for photographing required for this edition.
 
-<img src=".gitbook/assets/image (8).png" alt="" data-size="original">
+<img src=".gitbook/assets/image (8) (1).png" alt="" data-size="original">
 
 Image: The author and the author's son Choi Joong Hwa and Master Park Jung Taek with his wife Glenda Park conduct a last minute review in the preparation of this encyclopedia
 
@@ -189,7 +189,7 @@ Music by Kim Yoon Yung
 
 Words by Choi Hong Hi
 
-![](<.gitbook/assets/image (10).png>)![](<.gitbook/assets/image (3).png>)
+![](<.gitbook/assets/image (10) (1).png>)![](<.gitbook/assets/image (3).png>)
 
 
 
@@ -317,7 +317,7 @@ It appears that the warriors of Hwa Rangdo added a new dimension to this primiti
 
 During the period of Hwa Rangdo, the original primitive method of hand fighting called Soo Bak-Gi was popular among the common people in the Koguryo Dynasty. The people had a high regard for Soo Bak-Gi. During the Dan-0 festivals (on the 5th of May of the lunar calendar) and mid-Autumn festivals (August 15th of the lunar calendar) competitions of Soo Bak-Gi were held along with games of Korean wrestling, tug of war, hopping contests and Jeki-Chagi.
 
-<figure><img src=".gitbook/assets/image (9).png" alt=""><figcaption><p>The mural painting at the Kak-je Tomb, painted in the age of San-Sang, the tenth king of Koguryo, shows sparring of Soo Bak-Gi. Once again, notice the similarities of these postures and Taekwon-Do flying combatants.</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (9) (1).png" alt=""><figcaption><p>The mural painting at the Kak-je Tomb, painted in the age of San-Sang, the tenth king of Koguryo, shows sparring of Soo Bak-Gi. Once again, notice the similarities of these postures and Taekwon-Do flying combatants.</p></figcaption></figure>
 
 The famous Korean historian, Dr. Danjae Shin Chae Ho, in his writings of ancient Chosun, describes the contests of skill and courage under grueling conditions; "dancing with swords and certain water sports were held on the frozen river to test a contestant's courage and perseverance. Archery and Taek Kyon contests were held to test skill and power.
 
