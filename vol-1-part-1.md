@@ -66,7 +66,7 @@ The true Taekwon-Do of General Choi knows no boundaries of countries; it is a un
 
 These volumes are proof of General Choi's tenacity of dedication to keeping the original Taekwon-Do free from unproved imitations, and with the co-operation of all true Taekwon-Do students, no matter what grade, weed out those who seek to destroy his teachings.
 
-![](<.gitbook/assets/image (1) (1).png>)
+![](<.gitbook/assets/image (1) (1) (1).png>)
 
 
 
@@ -126,7 +126,7 @@ TAEKWON-DO AIMS TO ACHIEVE
 
 **Indomitable Spirit** (Baekjul Boo/goof)
 
-![](<.gitbook/assets/image (2) (1).png>)
+![](<.gitbook/assets/image (2) (1) (1).png>)
 
 
 
@@ -179,7 +179,7 @@ A serious student of Taekwon-Do will at all times be modest and honest. If confr
 
 Confucius declared; "it is an act of cowardice to fail to speak out against injustice." As history has proven, those who have pursued their dreams earnestly and strenuously with indomitable spirit have never failed to achieve their goals.
 
-<figure><img src=".gitbook/assets/image.png" alt="" width="135"><figcaption><p>"Pursue one's own goal"</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (1).png" alt="" width="135"><figcaption><p>"Pursue one's own goal"</p></figcaption></figure>
 
 ##
 
@@ -195,7 +195,7 @@ Words by Choi Hong Hi
 
 
 
-![](<.gitbook/assets/image (11).png>)
+![](<.gitbook/assets/image (11) (1).png>)
 
 
 
@@ -241,11 +241,11 @@ Hours spent on training will not be wasted; for surely you will reap a rich rewa
 
 Even if Taekwon-Do is practiced for the sake of exercise alone. the enjoyment derived will justify the time invested and spent. As an exercise. it is equally suitable for the old and young. male and female.
 
-![](<.gitbook/assets/image (1).png>)
+![](<.gitbook/assets/image (1) (1).png>)
 
-![](<.gitbook/assets/image (12).png>)
+![](<.gitbook/assets/image (12) (1).png>)
 
-<figure><img src=".gitbook/assets/image (7).png" alt=""><figcaption><p>The mural painting at Duk Hung Tomb (409 A. D.) shows general Jin, the premier of Yoo-Ju province. Koguryo, receiving the 13 governors. Yoo-Ju province consisted of 13 counties including Dae-Goon which was situated in the extreme west of that province.</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (7) (1).png" alt=""><figcaption><p>The mural painting at Duk Hung Tomb (409 A. D.) shows general Jin, the premier of Yoo-Ju province. Koguryo, receiving the 13 governors. Yoo-Ju province consisted of 13 counties including Dae-Goon which was situated in the extreme west of that province.</p></figcaption></figure>
 
 
 
@@ -303,7 +303,7 @@ The Hwa Rangdo became known in the peninsula for their courage and skill in batt
 
 The strength they derived from their respect to their code enabled them to attain feats of valour that became legendary. Many of these brave young warriors died on fields of battle in the threshold of their youth - as young as fourteen or fifteen years of age.
 
-![](<.gitbook/assets/image (4).png>)
+![](<.gitbook/assets/image (4) (1).png>)
 
 The statue of Kumkang-Yuksa, a famous warrior in Sukulam, a stone cave built in the age of the Silla Dynasty.
 
@@ -333,11 +333,11 @@ The Korean Hwa Rangdo may have been the forerunners of the famed Japanese samura
 
 _The mural painting at Kangso Tomb, 7th century, shows the advanced skill in art and the mysterious usage of everlasting colors, the technique of which remains unexplained._
 
-<figure><img src=".gitbook/assets/image (2).png" alt=""><figcaption><p>Dark Warrior</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (2) (1).png" alt=""><figcaption><p>Dark Warrior</p></figcaption></figure>
 
-<figure><img src=".gitbook/assets/image (5).png" alt=""><figcaption><p>Blue Dragon</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (5) (1).png" alt=""><figcaption><p>Blue Dragon</p></figcaption></figure>
 
-<figure><img src=".gitbook/assets/image (6).png" alt=""><figcaption><p>White Tiger</p></figcaption></figure>
+<figure><img src=".gitbook/assets/image (6) (1).png" alt=""><figcaption><p>White Tiger</p></figcaption></figure>
 
 
 
