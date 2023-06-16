@@ -68,27 +68,27 @@ I resolved to become a black belt holder in Karate while I was in Japan.
 
 The skills I required were, I felt, sufficient protection against those who might seek to do me harm. Not only was I able to return to Korea, but I subsequently initiated the national liberation movement known as the Pyongyang Student Soldiers Incident. Like so many patriots in the long course of human history, my actions aroused the wrath of those in positions of power. I was imprisoned for a time in a Japanese army jail. In January of 1946, I was commissioned as a second lieutenant in the fledgling Republic of Korea army and posted to the 4th infantry regiment in Kwangju, Cholla Namdo Province as a company commander.
 
-I began to teach Karate to my soldiers as a means of physical and mental training. Ifulfilt was then that I realized that we needed to develop our own national martial art, superior in both spirit and technique to Japanese Karate. I strongly believed that teaching it throughout the country would enable me to fulfill the pledge I had made to three of my comrades, who had shared my imprisonment by the Japanese. "The reason that our people suffer in this way at the hands of the Japanese," I had said, "is that our ancestors failed to rule wisely".
+I began to teach Karate to my soldiers as a means of physical and mental training. It was then that I realized that we needed to develop our own national martial art, superior in both spirit and technique to Japanese Karate. I strongly believed that teaching it throughout the country would enable me to fulfil the pledge I had made to three of my comrades, who had shared my imprisonment by the Japanese. "The reason that our people suffer in this way at the hands of the Japanese," I had said, "is that our ancestors failed to rule wisely".
 
 " They exploited the people and, in the end, lost the country to foreign domination. If we ever regain our freedom and independence, let us not become the rulers of the people. Instead, let us dedicate ourselves to advising those who rule."
 
-It was w ith this ambition in mind that I began to develop new techniques, systematically, from March of that same year. By the end of 1954 I had nearly completed the foundation of a new martial art for Korea, and on April 11, 1955, it was given the name "Taekwon-Do:·
+It was with this ambition in mind that I began to develop new techniques, systematically, from March of that same year. By the end of 1954 I had nearly completed the foundation of a new martial art for Korea, and on April 11, 1955, it was given the name "Taekwon-Do".
 
 On the spiritual level, Taekwon-Do is derived from the traditional, ethical and moral principles of the orient and, of course, from my personal philosophy.
 
-Even though I am only five feet tall, I pride myself on having lived in strict accordance w ith my moral convictions. I have tried to fight on the side of justice without fear of any kind. I believe that this was possible for me only because of the formidable power and indomitable spirit instilled by TaekwonDo.
+Even though I am only five feet tall, I pride myself on having lived in strict accordance with my moral convictions. I have tried to fight on the side of justice without fear of any kind. I believe that this was possible for me only because of the formidable power and indomitable spirit instilled by Taekwon-Do.
 
 The physical techniques of Taekwon-Do are based on the principles of modern science, in particular, Newtonian physics which teaches us how to generate maximum power. Military tactics of attack and defense have also been incorporated.
 
 I wish to make it clear that although Karate and Taek Kyon were used as references in the course of my study, the fundamental theories and principles of Taekwon-Do are totally different from those of any other martial art in the world.
 
-In March of 1959, I led the military Taekwon-Do demonstration team on a tour abroad. We visited South Vietnam and Taiwan. It was the first such visit in the history of Korea. On this occasion. I renewed my resolution to leave my personal legacy to the world, in the form of Taekwon-Do. and I formulated the following basic ideals for the Taekwon-Do practitioners:
+In March of 1959, I led the military Taekwon-Do demonstration team on a tour abroad. We visited South Vietnam and Taiwan. It was the first such visit in the history of Korea. On this occasion, I renewed my resolution to leave my personal legacy to the world, in the form of Taekwon-Do, and I formulated the following basic ideals for the Taekwon-Do practitioners:
 
 1. By developing an upright mind and a strong body, we will acquire the self-confidence to stand on the side of justice at all times.
-2. We shall unite with all men in a common brother-hood. without regard to religion. race. national or ideological boundaries.
+2. We shall unite with all men in a common brother-hood, without regard to religion, race, national or ideological boundaries.
 3. We shall dedicate ourselves 10 building a peaceful human society in which justice, morality, trust and humanism prevail.
 
-I also resolved to dedicate myself 10 the world-wide propagation of Taekwon-Do. in the sincere hope that it would provide the means by w hich the unification of the divided halves of my fatherland would become possible.
+I also resolved to dedicate myself 10 the world-wide propagation of Taekwon-Do, in the sincere hope that it would provide the means by which the unification of the divided halves of my fatherland would become possible.
 
 My study of Taekwon-Do proceeded in two parts, spiritual discipline and technical perfection. Because the human spirit belongs to the realm of metaphysics, what I mean by spiritual discipline is not easy to describe. One cannot touch, see or hear the spirit of man.
 
@@ -96,7 +96,7 @@ It is wider and deeper than anything we can perceive.
 
 In this respect, I, myself, am only another student participating in a continuing and neverending learning process.
 
-I have come to define the spiritual dimensions of Taekwon-Do as fusing oneself with the ideals of Taekwon-Do and anaining and understanding the full meaning of each of the Taekwon-Do panerns. If we consider ourselves as one with Taekwon-Do, we will respect it as we respect our own bodies and Taekwon-Do will never be used in a dishonorable way.
+I have come to define the spiritual dimensions of Taekwon-Do as fusing oneself with the ideals of Taekwon-Do and attaining and understanding the full meaning of each of the Taekwon-Do patterns. If we consider ourselves as one with Taekwon-Do, we will respect it as we respect our own bodies and Taekwon-Do will never be used in a dishonorable way.
 
 <figure><img src=".gitbook/assets/image (10).png" alt=""><figcaption><p>Life and work become one.</p></figcaption></figure>
 
